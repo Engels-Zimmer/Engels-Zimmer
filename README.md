@@ -2,6 +2,6 @@
 
 ---
 
-Discord - Zimmer/z1mw3rxxx - She/Her/He/Him - ❤🌸
+Discord - Zimmer/z1mw3rxxx - xxx - ❤🌸
 
 [![Discord Presence](https://lanyard.cnrad.dev/api/731344648563589212)](https://discord.com/users/731344648563589212)
