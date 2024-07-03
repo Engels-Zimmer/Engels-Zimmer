@@ -4,4 +4,4 @@
 
 Discord - Zimmer/zm1w3rxxx - xxx - ❤🌸
 
-[![Discord Presence](https://lanyard.cnrad.dev/api/731344648563589212)](https://discord.com/users/731344648563589212)
+[![Discord Presence](https://lanyard.cnrad.dev/api/900690700230885397)](https://discord.com/users/900690700230885397)
